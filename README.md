@@ -1,0 +1,5 @@
+- 👋 Hi
+- 👀 I’m interested in  le dev  fivem
+- 🌱 I’m currently learning à dev
+- 💞️ I’m looking to collaborate on fivem
+- 📫 How to reach me discord:rio#4012
